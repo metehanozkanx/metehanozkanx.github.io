@@ -1,1 +1,0 @@
-# metehanozkanx.github.io
